@@ -4,6 +4,7 @@ Hello! If you're reading, that means you're probably interested in becoming my s
 
 
 RULES
+
 -You are to Address me as Mistress Alyson or Miss Alyson.
 
 -You are to get on your knees whenever you greet me, then you may stand.
