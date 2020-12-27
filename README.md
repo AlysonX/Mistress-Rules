@@ -1,6 +1,6 @@
 # Mistress-Rules
 
-Hello! If you're reading, that means you're probably interested in becoming my submissive. In this document you will find my general rules I want my subs to follow. More rules will be devlopped as time goes on and I get to know you more. If you catch my eye, say goodbye to your freedom~
+Hello! If you're reading, that means you're probably interested in becoming my submissive. In this document you will find my general rules I want my subs to follow. More rules will be developped as time goes on and I get to know you more. If you catch my eye, say goodbye to your freedom~
 
 
 RULES
