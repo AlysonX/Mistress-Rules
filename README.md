@@ -20,6 +20,6 @@ ABOUT
 
 As a Mistress I am very strict. I am not the cute Alyson you probably know. I'm Mistress Alyson. I expect to be treated as such. I can be sadistic in my own way. Though I do not enjoy inflicting pain on others, I will use corporal punishment should I see no other way. Otherwise I will break your will until you obey or learn from your mistake.
 
-I want my subs to follow me obediently and I will train you, teach you lessons and turn you into my obedient subbie with ANY means necessary. (Obviously following your limits and my limits) If that isn't your cup of tea, turn away now.
+I want my subs to follow me obediently and I will train you, teach you lessons and turn you into my obedient subbie with ANY means necessary. (Obviously following your limits and my limits) If that isn't your cup of tea, turn away now. Otherwise, you're mine now~
 
 
